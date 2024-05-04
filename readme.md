@@ -46,6 +46,6 @@ You have a couple of options to get replacement things. For display cords and PC
 
 For console peripherals, you have a couple of choices. There are both a Best Buy and a Gamestop within driving distance of the venue. Best Buy is approximately 15 minutes away with no traffic. Follow the signs to merge onto Northbound US-75, and exit to exit 5B and take the frontage road. For Gamestop, follow the same route for Best Buy; but take exit 4B. Turn right onto Caruth Haven Rd, then take the next right onto Greenville Avenue, and Gamestop will be on the right hand side; next door to a Whataburger location.
 
-Step 11 - Why no || Fortnite ||
+Step 11 - Why no F******e
 
 While the game will be playable at the event in the BYOC, there are no event-run tournaments per the parent company of Dreamhack. If you have to ask why or want to consider begging for one, take a look in the mirror (and how you carry yourself in general) before you speak.
